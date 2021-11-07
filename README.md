@@ -1,2 +1,2 @@
 # Plan
-here is my plans and achievements💤
+here are my plans and achievements💤
